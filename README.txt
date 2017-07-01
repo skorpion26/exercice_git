@@ -1,1 +1,1 @@
-Ces fichiers appartiennent a un entreprise et constitut la page d'accueil
+Ces fichiers appartiennent a un entreprise et constitut la page d'accueil de sont nouveau site web
